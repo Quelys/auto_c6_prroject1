@@ -1,0 +1,1 @@
+# auto_c6_prroject1
